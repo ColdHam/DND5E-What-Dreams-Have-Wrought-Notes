@@ -54,7 +54,7 @@
     - Bare Insults and Axes. Beasthide. 
     - Pretty nice guy. Set us up with this job.
 
-Navakri and Talan let us know about this letter from **Ildava Luciana**  
+Navakri and Talan let us know about this letter from **Ildra Luciana**  
 instructing us to come see her about the job, which is why we on this train
 
 > Jon yet again has no money.
@@ -75,7 +75,7 @@ People seem to be having crazy dreams / shared dream? Some kid  said something a
 
 Made it to **Tira's Vigil**
 
-Hand note to guard, looking for ilda.  
+Hand note to guard, looking for ildra.  
 Letters seem to have more power than I thought.  
 LETTERS LET YOU SMOKE ON LIGHTNING RAILS!  
 LETTERS LET YOU GET WHERE YOU WANT!  
@@ -90,7 +90,7 @@ LETTERS LET YOU GET WHERE YOU WANT!
 ## PERSONS PLACES & THINGS
 - People
     - Gwentin
-    - Ildava Luciana
+    - Ildra Luciana
     - Dandillion
     - Bandit Leader
     - Dragon Marked Noble?
@@ -100,7 +100,7 @@ LETTERS LET YOU GET WHERE YOU WANT!
     - Hathriel
     - Tira's Vigil
 - Things
-    - Note from Idra
+    - Note from Ildra
     - Wand of Searing Ray on that bandit? Shoulda looted that guy.
 ***
 
